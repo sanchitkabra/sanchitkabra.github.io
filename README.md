@@ -1,5 +1,3 @@
-# Sanchit Kabra
-
 **Data Scientist | Columbia MA Statistics**  
 [sanchitkabra08@outlook.com](mailto:sanchitkabra08@outlook.com) • +91 9731708707 • +1 (929) 497-1803  
 [GitHub](https://github.com/ssk1708) • [LinkedIn](https://www.linkedin.com/in/sanchit-kabra)
